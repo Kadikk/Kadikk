@@ -1,8 +1,8 @@
-- 👋 Hi, I’m @Kadikk
+- 👋 Hi, I’m @Kadikk 
 - 👀 I’m interested in Human
 - 🌱 I’m currently learning Human
 - 💞️ I’m looking to collaborate on Human
-- 📫 How to reach me ...
+- 📫 How to reach me is via Human
 - 😄 Pronouns: Human
 - ⚡ Fun fact: I’m Human
 
